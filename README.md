@@ -13,7 +13,7 @@ Hafsa Mazhar – Team Leader (GitHub Moderator)
 
 Minahil Iftikhar – Collaborator
 
-Ayesha Ahmed – Collaborator
+Zainab Bhatti – Collaborator
 
 📝 Project Overview
 
